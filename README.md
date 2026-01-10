@@ -15,7 +15,7 @@ align="right" src="https://camo.githubusercontent.com/4d9f5ecceb711eec6e2018f38a
 
 - 📫 How to reach me **prasoonmishra9936@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1oztNJeXdw6k00U2VDoUvLodibpXVbjnS/view?usp=drive_link](https://drive.google.com/file/d/1oztNJeXdw6k00U2VDoUvLodibpXVbjnS/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1oztNJeXdw6k00U2VDoUvLodibpXVbjnS/view?usp=drive_link](https://drive.google.com/file/d/1BIXGeJKeVNUNo-OU1H4sgNqeQ8dWVD5l/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
